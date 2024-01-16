@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... something...
 - 📫 How to reach me ... discord - justmeplayin4
 - 😄 Pronouns: ... normal guy with no mental health issues
-- ⚡ Fun fact: ... Im 14 years old
+- ⚡ Fun fact: ... Im 14 years old and I live in Slovakia
 
 <!---
 JustMePlayin4/JustMePlayin4 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
